@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @jiisaloran
-- 🌱 I’m currently learning to find time for my things.
-- 💞️ I’m looking to collaborate on ... right after the learning.
+- 🌱 I’m currently harvesting time to resource my things.
 - 📫 How to reach me .. you know!
 
 <!---
